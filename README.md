@@ -1,0 +1,1 @@
+# erro-no-sinus-bot-do-pterodactyl
